@@ -1,4 +1,4 @@
-# ![EUSPHERE Logo](https://tiaiutoticino.ch/wp-content/uploads/2022/09/eusblutrasparente.png) EUSPHERE
+# ![EUSPHERE Logo](https://tiaiutoticino.ch/wp-content/uploads/2022/09/eusblutrasparente.png) EUSPHERE Business Solutions SA
 
 ## Chi Siamo  
 EUSPHERE è un'azienda specializzata in **soluzioni tecnologiche avanzate**, con un focus su **innovazione, sicurezza e affidabilità**. Offriamo servizi personalizzati per aziende di tutte le dimensioni, aiutandole a raggiungere i loro obiettivi attraverso l'uso di tecnologie all'avanguardia.  
